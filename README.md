@@ -19,7 +19,7 @@
 ‎ 
 
 <h6 align>
-<a href="https://www.youtube.com/watch?v=Rb0UmrCXxVA" target="_blank">rentry​</a>　　<a href="https://notgonnaflipoff.atabook.org" target="_blank">新book</a>　　<a href="https://tamanotchi.world/28376c" target="_blank">tamanotchi</a>
+<a href="https://rentry.co/phase6murdoc" target="_blank">rentry​</a>　　<a href="https://notgonnaflipoff.atabook.org" target="_blank">新book</a>　　<a href="https://tamanotchi.world/28376c" target="_blank">tamanotchi</a>
 ‎ 
 ‎ 
 ‎ 
