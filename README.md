@@ -15,7 +15,7 @@
 ‎ 
 
 <h6 align>
-ʚ　<a href="https://rentry.co/phase6murdoc" target="_blank">rentry​</a>　　<a href="https://notgonnaflipoff.atabook.org" target="_blank">新book</a>
+<a href="https://rentry.co/phase6murdoc" target="_blank">rentry​</a>　　<a href="https://notgonnaflipoff.atabook.org" target="_blank">新book</a>　　<a href="https://rentry.co/2docpornwebsite" target="_blank">interests</a>　　₍ ᐢ. .ᐢ₎ ♪
 ‎ 
 ‎ 
 ‎ <div align="center">
