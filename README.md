@@ -11,7 +11,7 @@
 ‎ 
 <div align="center">
     
-　　<img width="44%" src="https://files.catbox.moe/l6gxns.png">　
+　　<img width="34%" src="https://files.catbox.moe/esim5w.png">　
 ‎ 
 
 <h6 align>
@@ -24,7 +24,7 @@
 ‎ 
 ‎ <div align="center">
 
-<p align="center"> $${\color{#53c433}   𐂯⠀  sasha\color{#53c433}  /  alan ⠀܀⠀}$$‎ 
+<p align="center"> $${\color{#8cbc56}   𐂯⠀  sasha\color{#8cbc56}  /  alan ⠀܀⠀}$$‎ 
 ‎ 
 
 ‎ 
