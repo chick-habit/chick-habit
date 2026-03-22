@@ -11,7 +11,7 @@
 ‎ 
 <div align="center">
     
-　　<img width="34%" src="https://files.catbox.moe/esim5w.png">　
+　　<img width="24%" src="https://files.catbox.moe/esim5w.png">　
 ‎ 
 
 <h6 align>
