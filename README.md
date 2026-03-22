@@ -24,8 +24,10 @@
 ‎ 
 ‎ <div align="center">
 
-<p align="center"> $${\color{#8cbc56}   𐂯⠀  sasha\color{#8cbc56}  /  alan ⠀܀⠀}$$‎ 
-‎ 
+<p align="center"> $${\color{#96cb63}   𐂯⠀  sasha\color{#d5df6f}  /  alan ⠀܀⠀}$$‎ 
+    ‎ 
+
+<p align="center"> $${\color{#96cb63}  (っ҂ཀ•)っ    \color{#d5df6f}16 y o  ｡ \color{#96cb63}russian ｡ \color{#d5df6f}male ｡⠀}$$‎  
 
 ‎ 
 ‎ 
