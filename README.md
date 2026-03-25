@@ -6,7 +6,7 @@
 ‎ 
 
 ‎ 
-‎ ![](https://komarev.com/ghpvc/?username=theplasticbeach&color=5a5a5a&style=plastic&label=🍏)
+૮ 　‎ ![](https://komarev.com/ghpvc/?username=theplasticbeach&color=5a5a5a&style=plastic&label=🍏)　 ა
 ‎ 
 ‎ 
 <div align="center">
@@ -24,10 +24,10 @@
 ‎ 
 ‎ <div align="center">
 
-<p align="center"> $${\color{#96cb63}   𐂯⠀  sasha\color{#d5df6f}  /  alan ⠀܀⠀}$$‎ 
+<p align="center"> $${\color{#96cb63}   𐂯⠀  sasha  / ᴖ　alan ⠀໑  }$$‎ 
     ‎ 
 
-<p align="center"> $${\color{#96cb63}  (っ҂ཀ•)っ    \color{#d5df6f}16 y o  ｡ \color{#96cb63}russian ｡ \color{#d5df6f}male ｡⠀}$$‎  
+<p align="center"> $${\color{#96cb63}      16 y o   russian  ｡ male  ⠀}$$‎  
 
 ‎ 
 ‎ 
