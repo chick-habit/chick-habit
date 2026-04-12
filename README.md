@@ -14,8 +14,8 @@
 　　<img width="24%" src="https://files.catbox.moe/esim5w.png">　
 ‎ 
 
-<h6 align>
-<a href="https://rentry.co/phase6murdoc" target="_blank">rentry​</a>　　𓈒　　<a href="https://rentry.co/nasheu" target="_blank">mw tes​</a>　　𓈒　　<a href="https://notgonnaflipoff.atabook.org" target="_blank">新book</a>　　𓈒　　<a href="https://phase5murdoc.straw.page/" target="_blank">straw​</a>
+
+<sub><a href="https://rentry.co/phase6murdoc" target="_blank">rentry​</a>　　𓈒　　<a href="https://rentry.co/nasheu" target="_blank">mw tes​</a>　　𓈒　　<a href="https://notgonnaflipoff.atabook.org" target="_blank">新book</a>　　𓈒　　<a href="https://phase5murdoc.straw.page/" target="_blank">straw​</a></sub>\
 ‎ 
  </div>
 <div align="center">
