@@ -43,3 +43,15 @@ ${\textsf{\color{#BBE188}  (:̲̅:̲̅:̲̅[̲̅:✙:]̲̅:̲̅:̲̅:̲̅)  ⠀ 
 ‎ 
 
 ‎ 
+ 
+‎ 
+‎ 
+
+‎ 
+
+‎ 
+‎ 
+‎ 
+
+‎ 
+<img width="90%" src="https://files.catbox.moe/1mlu23.png">　
