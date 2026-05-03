@@ -12,12 +12,12 @@
 ‎ 
 
 ‎ 
-૮ 　‎ ![](https://komarev.com/ghpvc/?username=theplasticbeach&color=5a5a5a&style=plastic&label=🍏)　 ა
+૮ 　‎ ![](https://komarev.com/ghpvc/?username=theplasticbeach&style=flat-square&label=　૮　⸌̣　ﻌ　⸍̣　ა　&color=e4b2c0&labelColor=0D1017&extraCount=935814)　 ა　 ![image_alt](https://file.garden/aXu9FpkcPAJchg9c/Pixels/BW/IMG_7360.gif)　˳ 𓏽⑅　　𝄞
 ‎ 
  </div>
 <div align="center">
     
-　<img width="20%" src="https://file.garden/advxiibH2A0yI8jq/Untitled75_20260415163103.png">　
+　<img width="40%" src="https://files.catbox.moe/c8j832.png">　
 ‎ 
 
 
@@ -26,13 +26,7 @@
  </div>
 <div align="center">
 
-${\textsf{\color{#BBE188}   𐂯⠀ ⠀ ⠀  sasha ⠀  /⠀  ᴖ　alan ⠀໑  }}$ ![image_alt](https://github.com/koirinsdiary/koirinsdiary/blob/7d6a5779c43997adbe160a05732ee0f564e0bdfd/tumblr_749b3b9f4774563ec2d71402422f8b0f_3a5444e2_75.gif) ${\textsf{\color{#BBE188}ა}}$
-    ‎ 
-    
-${\textsf{\color{#BBE188}  (:̲̅:̲̅:̲̅[̲̅:✙:]̲̅:̲̅:̲̅:̲̅)  ⠀   16 y o  russian  𑊁 ｡    
-  male  ⠀}}$
 
-‎ 
 ‎ 
 ‎ 
 
