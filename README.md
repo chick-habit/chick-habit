@@ -19,12 +19,12 @@
 ‎ 
 
 
-$\color{#f0c0cc}{𝜗ৎ᭪}$ 　　<sub><a href="https://rentry.co/nasheu" target="_blank">mw tes​</a>　　𓈒　　<a href="https://notgonnaflipoff.atabook.org" target="_blank">新book</a></sub>\
+$\color{#f0c0cc}{𝜗ৎ᭪}$ 𓏽　　<sub><a href="https://rentry.co/nasheu" target="_blank">mw tes​</a>　　𓈒　　<a href="https://notgonnaflipoff.atabook.org" target="_blank">新book</a></sub>\
 ‎ 
 
-$\color{#f0c0cc}{\textsf{𝗮la͢n͢}}$ ㅤᵒʳ ㅤ $\color{#5e739c}{s𝗮sha}$ㅤ ㅤ ангел ㅤ─ ㅤ![image_alt](https://files.catbox.moe/u2pe4x.gif)           ࿔   ㅤ ‎  $\color{#e0d5d7}{𝟏 6}$
+<small>$\color{#f0c0cc}{\textsf{𝗮la͢n͢}}$ ་།ㅤᵒʳ ㅤ $\color{#5e739c}{s𝗮sha}$ㅤ ㅤ ангел ㅤ─ ㅤ![image_alt](https://files.catbox.moe/u2pe4x.gif)           ࿔   ㅤ ‎  $\color{#e0d5d7}{𝟏 6}$
 
-Ꮺ ㅤ $\color{#e0d5d7}{male}$ ㅤ ﹠ ㅤ $\color{#f0c0cc}{russian}$
+Ꮺ ㅤ $\color{#e0d5d7}{m𝗮𝗹e}$ ㅤ <small>﹠ ㅤㅤ $\color{#f0c0cc}{𝗿𝘂𝘀siคn}$ㅤ  ㅤ♬་ ˳ㅤ $\color{#5e739c}{ιѕтp-t}$
 
 ‎ 
 
