@@ -3,7 +3,8 @@
 <div align="center"> 
 ‎ 
 ‎ 
-‎ 
+‎<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Cormorant&weight=300&size=17&duration=2000&pause=10&color=F0C0CC&center=true&vCenter=true&width=500&height=21&lines=take+some+of+this%2C+it'll+calm+you+down;you+might+as+well+just+come+around;just+come+around;just+come+around" alt="Typing SVG" /></a>
+
 
 ‎ 
 ‎ 
@@ -26,11 +27,9 @@ $\color{#f0c0cc}{𝜗ৎ᭪}$ 𓏽　　<sub><a href="https://rentry.co/nasheu" 
 
 Ꮺ ㅤ $\color{#e0d5d7}{m𝗮𝗹e}$ ㅤ <small>﹠ ㅤㅤ $\color{#f0c0cc}{𝗿𝘂𝘀siคn}$ㅤ  ㅤ♬་ ˳ㅤ $\color{#5e739c}{ιѕтp-t}$
 
-‎ 
 
 ‎ 
 ‎ 
 ‎ 
-
 
 ‎ 
