@@ -20,7 +20,7 @@
 ‎ 
 
 
-$\color{#f0c0cc}{𝜗ৎ᭪}$ 𓏽　　<sub><a href="https://rentry.co/nasheu" target="_blank">mw tes​</a>　　𓈒　　<a href="https://notgonnaflipoff.atabook.org" target="_blank">新book</a></sub>\
+$\color{#f0c0cc}{𝜗ৎ᭪}$ 𓏽　　<sub><a href="https://rentry.co/phase6murdoc" target="_blank">rentry</a>　　𓈒　　<a href="https://notgonnaflipoff.atabook.org" target="_blank">新book</a></sub>\
 ‎ 
 
 <small>$\color{#f0c0cc}{\textsf{𝗮la͢n͢}}$ ་།ㅤᵒʳ ㅤ $\color{#5e739c}{s𝗮sha}$ㅤ ㅤ ангел ㅤ─ ㅤ![image_alt](https://files.catbox.moe/u2pe4x.gif)           ࿔   ㅤ ‎  $\color{#e0d5d7}{𝟏 6}$
