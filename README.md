@@ -24,7 +24,7 @@ $\color{#f0c0cc}{𝜗ৎ᭪}$ 𓏽　　<sub><a href="https://rentry.co/phase6mu
 ‎ 
 
 
-Ꮺ ㅤ $\color{#e0d5d7}{m𝗮𝗹e}$ ㅤ <small>﹠ ㅤㅤ $\color{#f0c0cc}{𝗿𝘂𝘀siคn}$ㅤ  ㅤ![image_alt](https://files.catbox.moe/u2pe4x.gif)་ ˳ㅤ $\color{#5e739c}{ιѕтp-t}$
+Ꮺ ㅤ $\color{#e0d5d7}{ret𝗮rded}$ ㅤ <small>﹠ ㅤㅤ $\color{#f0c0cc}{𝗿𝘂𝘀siคn}$ㅤ  ㅤ![image_alt](https://files.catbox.moe/u2pe4x.gif)་ ˳ㅤ $\color{#5e739c}{ιѕтp-t}$
 
 
 ‎ 
