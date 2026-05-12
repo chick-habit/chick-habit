@@ -12,7 +12,8 @@
 
 ‎ 
 ૮ 　‎ ![](https://komarev.com/ghpvc/?username=theplasticbeach&style=flat-square&label=　૮　⸌̣　ﻌ　⸍̣　ა　&color=e4b2c0&labelColor=0D1017&extraCount=935814)　 ა　 ![image_alt](https://file.garden/aXu9FpkcPAJchg9c/Pixels/BW/IMG_7360.gif)　˳　 𓏽⑅　　 $\color{#f0c0cc}{𝄞}$
-‎ 
+
+
 
 
     
@@ -27,9 +28,8 @@ $\color{#f0c0cc}{𝜗ৎ᭪}$ 𓏽　　<sub><a href="https://rentry.co/phase6mu
 Ꮺ ㅤ $\color{#e0d5d7}{ret𝗮rded}$ ㅤ <small>﹠ ㅤㅤ $\color{#f0c0cc}{𝗿𝘂𝘀siคn}$ㅤ  ㅤ![image_alt](https://files.catbox.moe/u2pe4x.gif)་ ˳ㅤ $\color{#5e739c}{ιѕтp-t}$
 
 ‎
-‎ 
-![](src="https://img.shields.io/github/followers/chick-habit?style=flat-square&label=　૮　⸌̣　ﻌ　⸍̣　ა　&color=e4b2c0&labelColor=0D1017")
-
+‎✙ 　‎ ![](https://img.shields.io/github/followers/chick-habit?style=flat-square&label=%E2%94%A3%E2%96%87%E2%96%87%E2%96%87%E2%96%87%E2%95%90%E2%94%80%E2%94%80%E3%80%80%E3%80%80&labelColor=0D1017&color=e4b2c0
+)　 　౨          𖾞       
 
 ‎ 
 ‎ 
