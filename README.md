@@ -28,8 +28,7 @@ $\color{#f0c0cc}{𝜗ৎ᭪}$ 𓏽　　<sub><a href="https://rentry.co/phase6mu
 Ꮺ ㅤ $\color{#e0d5d7}{ret𝗮rded}$ ㅤ <small>﹠ ㅤㅤ $\color{#f0c0cc}{𝗿𝘂𝘀siคn}$ㅤ  ㅤ![image_alt](https://files.catbox.moe/u2pe4x.gif)་ ˳ㅤ $\color{#5e739c}{ιѕтp-t}$
 
 ‎
-‎✙ 　‎ ![](https://img.shields.io/github/followers/chick-habit?style=flat-square&label=%E2%94%A3%E2%96%87%E2%96%87%E2%96%87%E2%96%87%E2%95%90%E2%94%80%E2%94%80%E3%80%80%E3%80%80&labelColor=0D1017&color=e4b2c0
-)　 　౨          𖾞       
+‎✙ 　‎ ![]( https://img.shields.io/badge/┣▇▇▇▇═──-666-e4b2c0?style=flat-square)　 　౨          𖾞       
 
 ‎ 
 ‎ 
