@@ -25,7 +25,7 @@ $\color{#f0c0cc}{𝜗ৎ᭪}$ 𓏽　　<sub><a href="https://rentry.co/phase6mu
 ‎ 
 
 
-Ꮺ ㅤ $\color{#e0d5d7}{ret𝗮rded}$ ㅤ <small>﹠ ㅤㅤ $\color{#f0c0cc}{𝗿𝘂𝘀siคn}$ㅤ  ㅤ![image_alt](https://files.catbox.moe/u2pe4x.gif)་ ˳ㅤ $\color{#5e739c}{ιѕтp-t}$
+Ꮺ ㅤ $\color{#e0d5d7}{ret𝗮rded}$ ㅤ <small>﹠ ㅤㅤ $\color{#f0c0cc}{𝗿𝘂𝘀siคn}$ㅤ  ㅤ![image_alt](https://files.catbox.moe/u2pe4x.gif)་ ˳ㅤ $\color{#5e739c}{eѕтp-t}$
 
 ‎
 ‎✙ 　‎ ![]( https://img.shields.io/badge/┣▇▇▇▇═──-666-e4b2c0?style=flat-square)　 　౨          𖾞       
