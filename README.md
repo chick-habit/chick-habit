@@ -1,7 +1,5 @@
 ‎<!-- whatchow looking at-->
 
-‎ 
-‎ 
 
 
 <div align="center"> 
@@ -25,7 +23,6 @@
     
 <img src="https://files.catbox.moe/4cti01.gif" width="400">　
 ‎ 
-
 
 ‎ 
 ㆍㅈㆍ
