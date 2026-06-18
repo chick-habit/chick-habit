@@ -30,9 +30,13 @@
 
 ♬　　　 <sub><a href="https://rentry.co/phase6murdoc" target="_blank">rentry</a>　　₊　　<a href="https://notgonnaflipoff.atabook.org" target="_blank">新book</a></sub>\
 ‎ 
+<p align="center">
+‎𝜗ৎ᭪ 𓏽 ㅤ $\small\color{#bee1ae}{\textsf{　　male}}$　Ꮺ　  $\small\color{#bee1ae}{\textsf{eng ㅤ╱ ㅤru}}$
 
-‎𝜗ৎ᭪ 𓏽　　  (｀Д´)
 ‎ 
+‎ 
+$\small\color{#bee1ae}{\textsf{estp-t}}$　　⟡　　 $\small\color{#bee1ae}{\textsf{w2i 　　always}}$ 　　(｀Д´) 
+
 ‎ 
 ‎ 
 ‎ 
