@@ -41,16 +41,3 @@
 ‎ 
 ‎ 
 
-
-‎ 
-
-‎ 
-
-‎  
-<sub>@copperbottoms
-‎ 
-
-
-‎
-‎ 
-<img src="https://files.catbox.moe/rzcssb.png" width="260">　
