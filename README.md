@@ -12,7 +12,7 @@
 ‎ 
 
 ‎ 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&weight=300&size=17&duration=2000&pause=10&color=AEDAA6&center=true&vCenter=true&width=500&lines=take+sum+of+this+it'll+calm+you+down;you+might+aswell+just+come+around;just+come+around+...;just+come+around" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&weight=300&size=17&duration=2000&pause=10&color=B6B8D5&center=true&width=500&lines=dein+duft%2C+dein+haar%2C+;sweetie;du+schmeckst+so+wunderbar;mh..." alt="Typing SVG" /></a>
 
 
 
@@ -21,13 +21,13 @@
 
 
     
-<img src="https://files.catbox.moe/4cti01.gif" width="400">　
+<img src="https://files.catbox.moe/cyh1lk.gif" width="400">　
 ‎ 
 
 ‎υ𓏼 ´ ‸ ` 𓏼υ
 ‎ 
 
-<sub><a href="https://rentry.co/phase6murdoc" target="_blank">rentry</a>　　₊　　<a href="https://notgonnaflipoff.atabook.org" target="_blank">新book</a></sub>\
+<sub><a href="https://rentry.co/phase6murdoc" target="_blank">rentry</a>　　 ±　　<a href="https://notgonnaflipoff.atabook.org" target="_blank">新book</a></sub>\
 ‎ 
 
 ‎ 
