@@ -5,7 +5,7 @@
 <div align="center"> 
 ‎ 
 ‎ 
-‎
+‎hit me up w @fartgod to talk business yo
 
 ‎ 
 ‎ 
