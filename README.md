@@ -6,7 +6,7 @@
 ‎ 
 ‎ 
 ‎
-‎ 
+‎ <a href="https://rentry.co/chickhabitresponse" target="_blank">statement rentry</a>
 ‎ 
 ‎ 
 
