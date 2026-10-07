@@ -24,6 +24,7 @@
 ‎     <a href="https://github.com/serranavarro"> @serranavarro </a> ㅤ 
 ‎     <a href="https://github.com/newestalbum"> @newestalbum </a>
 ‎ 
+</details>
 ‎ 
 ‎ 
 ‎ 
