@@ -13,11 +13,10 @@
 
 
    <p align="center">
- <sub><a href="https://github.com/piehiker"> @piehiker </a> ㅤ 
+ <sub><a href="https://github.com/piehiker"> @piehiker </a>ㅤ 
      <a href="https://github.com/raayyz"> @raayyz </a> ㅤ 
      <a href="https://github.com/copperbottoms"> @copperbottoms </a>  ㅤ 
      <a href="https://github.com/jujuberii"> @jujuberii </a>
-
 
 <sub><a href="https://github.com/better-to-sleep"> @better-to-sleep </a> ㅤ 
      <a href="https://github.com/zegects"> @zegects </a> ㅤ 
