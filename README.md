@@ -1,11 +1,16 @@
 
+‎  <div align="center">
+‎ 
+
+‎ 
+‎ 
+‎</a> <a href=https://notgonnaflipoff.atabook.org><img src="https://files.catbox.moe/dw43nx.png" width="90"/></img></a>ㅤ </a> <a href=https://fluffle.cc/soukeye><img src="https://files.catbox.moe/1kdcv1.png" width="90"/></img></a>
 ‎ 
 ‎ 
 
 ‎ 
 ‎ 
-‎ 
-<div align="center">
+
 
 
   
