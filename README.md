@@ -44,7 +44,7 @@
 <sub><a href="https://github.com/better-to-sleep"> @better-to-sleep </a> ㅤ 
      <a href="https://github.com/zegects"> @zegects </a> ㅤ 
 ‎     <a href="https://github.com/serranavarro"> @serranavarro </a> ㅤ 
-‎     <a href="https://github.com/newestalbum"> @newestalbum </a>
+‎     <a href="https://github.com/newestalbum"> @newestalbum </a>ㅤ 
      <a href="https://github.com/deepaffection"> @deepaffection </a>
 ‎ 
 </details>
