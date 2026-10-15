@@ -34,19 +34,11 @@
   
 <details> <summary>ㅤㅤ୭ৎㅤ ( ᴗ͈ˬᴗ͈)ഒ </summary> 
 
+   <p align="center"> 
+     
+ <sub>[@piehiker](https://github.com/piehiker)ㅤ [@copperbottoms](https://github.com/copperbottoms) ♡ <br> 
+[@raayyz](https://github.com/raayyz)ㅤ [@jujuberii](https://github.com/jujuberii)ㅤ [@better-to-sleep](https://github.com/better-to-sleep)ㅤ [@deepaffection](https://github.com/deepaffection)  ㅤ<br> [@zegects](https://github.com/zegects) ㅤ[@serranavarro](https://github.com/serranavarro) ㅤ[@newestalbum](https://github.com/newestalbum)
 
-   <p align="center">
- <sub><a href="https://github.com/piehiker"> @piehiker </a>ㅤ 
-     <a href="https://github.com/raayyz"> @raayyz </a> ㅤ 
-     <a href="https://github.com/copperbottoms"> @copperbottoms </a>  ㅤ 
-     <a href="https://github.com/jujuberii"> @jujuberii </a>
-
-<sub><a href="https://github.com/better-to-sleep"> @better-to-sleep </a> ㅤ 
-     <a href="https://github.com/zegects"> @zegects </a> ㅤ 
-‎     <a href="https://github.com/serranavarro"> @serranavarro </a> ㅤ 
-‎     <a href="https://github.com/newestalbum"> @newestalbum </a>ㅤ 
-     <a href="https://github.com/deepaffection"> @deepaffection </a>
-‎ 
 </details>
 ‎ 
 ‎ 
