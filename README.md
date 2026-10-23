@@ -37,7 +37,7 @@
    <p align="center"> 
      
  <sub>[@piehiker](https://github.com/piehiker)ㅤ [@copperbottoms](https://github.com/copperbottoms) ♡ <br> 
-[@jujuberii](https://github.com/jujuberii)ㅤ [@better-to-sleep](https://github.com/better-to-sleep)ㅤ [@deepaffection](https://github.com/deepaffection)  ㅤ<br> [@zegects](https://github.com/zegects) ㅤ[@serranavarro](https://github.com/serranavarro) ㅤ[@newestalbum](https://github.com/newestalbum)
+[@catsinthecold](https://github.com/catsinthecold)ㅤ [@jujuberii](https://github.com/jujuberii)ㅤ [@better-to-sleep](https://github.com/better-to-sleep)ㅤ [@deepaffection](https://github.com/deepaffection)  ㅤ<br> [@zegects](https://github.com/zegects) ㅤ[@serranavarro](https://github.com/serranavarro) ㅤ[@newestalbum](https://github.com/newestalbum)
 
 </details>
 ‎ 
