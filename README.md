@@ -22,7 +22,7 @@
 ‎ 
 
 ‎ 
-‎</a> <a href=https://med-play.atabook.org><img src="https://file.garden/advxiibH2A0yI8jq/Untitled154_20261029142755.png" width="90"/></img></a>ㅤ </a> <a href=https://fluffle.cc/soukeye><img src="https://file.garden/advxiibH2A0yI8jq/Untitled154_20261029142746.png" width="90"/></img></a>
+‎</a> <a href=https://med-play.atabook.org><img src="https://file.garden/advxiibH2A0yI8jq/Untitled154.png" width="100"/></img></a>ㅤㅤㅤ </a> <a href=https://fluffle.cc/soukeye><img src="https://file.garden/advxiibH2A0yI8jq/Untitled154_20261029142746.png" width="90"/></img></a>
 ‎ 
 ‎ 
 
@@ -32,7 +32,7 @@
 
 
   
-<details> <summary>ㅤㅤ୭ৎㅤ ( ᴗ͈ˬᴗ͈)ഒ </summary> 
+<details> <summary>ㅤㅤ⫏⫐ ㅤ ┣[""I""I""]═─ </summary> 
 
    <p align="center"> 
      
