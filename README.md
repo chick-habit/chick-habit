@@ -37,7 +37,7 @@
    <p align="center"> 
      
  <sub>[@piehiker](https://github.com/piehiker)ㅤ [@sea-sick](https://github.com/sea-sick) ♡ㅤ [@catsinthecold](https://github.com/catsinthecold)ㅤ<br> 
-[@yvoisen](https://github.com/yvoisen)ㅤ [@jujuberii](https://github.com/jujuberii)ㅤ [@better-to-sleep](https://github.com/better-to-sleep)ㅤ [@deepaffection](https://github.com/deepaffection)  ㅤ<br> [@brandozos](https://github.com/brandozos) ㅤ[@serranavarro](https://github.com/serranavarro) ㅤ[@tirgery123](https://github.com/tirgery123)
+[@yvoisen](https://github.com/yvoisen)ㅤ [@jujuberii](https://github.com/jujuberii)ㅤ [@better-to-sleep](https://github.com/better-to-sleep)ㅤ [@tirgery123](https://github.com/tirgery123)  ㅤ
 
 </details>
 ‎ 
